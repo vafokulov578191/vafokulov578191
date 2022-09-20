@@ -1,4 +1,4 @@
-[![Header]]
+[![Header]](https://github.com/vafokulov578191/vafokulov578191/blob/main/assets/1640700914_39-abrakadabra-fun-p-oboi-programmista-na-telefon-40.png)
 
 ### Hi there 👋, I'm Aminjon
 
