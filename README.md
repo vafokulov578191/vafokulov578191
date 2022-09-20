@@ -1,5 +1,5 @@
 <!-- YOUTUBE:END -->
-### Hi there 👋, I'm Vlad
+### Hi there 👋, I'm Aminjon
 
 ![](https://komarev.com/ghpvc/?username=vafokulov578191)
 
