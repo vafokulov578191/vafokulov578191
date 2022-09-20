@@ -6,7 +6,6 @@
 ## I'm a FrontEnd React Developer
 - 💪 I like to write code
 - 🥅 I am constantly learning new things
-- ⚡ I love writing an article for https://webtricks-master.ru/
 
 ### Connect with me:
 
