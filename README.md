@@ -8,6 +8,8 @@
 
 ### Connect with me:
 
+Telegram: https://t.me/Aminjon_191
+Linkedin: https://www.linkedin.com/in/amin-vafokulov-ba4330252/
 
 ### Languages and Tools:
 
